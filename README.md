@@ -1,4 +1,4 @@
-# Ibrahim Hirsi Diiriye
+# Ibrahim Hersi Diiriye
 
 - 👋 Hi, I’m @ibrahimhdiiriye
 - 👀 I’m interested in ...
